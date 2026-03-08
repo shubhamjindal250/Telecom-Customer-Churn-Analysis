@@ -212,6 +212,21 @@ Encourage customers to subscribe to value-added services such as Tech Support, O
 
 Investigate why Fiber Optic customers churn more frequently and improve service quality or pricing strategies.
 
+<img width="900" height="778" alt="image" src="https://github.com/user-attachments/assets/ce21c1ae-c026-49c0-b005-959cede77993" />
+<p>
+   
+</p>
+<img width="900" height="777" alt="image" src="https://github.com/user-attachments/assets/9079dd32-a1ef-4bc3-a1c2-3ca320cfacb7" />
+<p>
+   
+</p>
+   
+<img width="900" height="767" alt="Screenshot 2026-03-09 000146" src="https://github.com/user-attachments/assets/8491ba67-ae49-4aa7-aae8-201887ef6ae9" />
+<p>
+   
+</p>
+<img width="900" height="771" alt="Screenshot 2026-03-09 000158" src="https://github.com/user-attachments/assets/54745e93-a9c0-470a-a005-9c2203cb31a1" />
+
 
 ## Key Insights and Business Recommendations
 
